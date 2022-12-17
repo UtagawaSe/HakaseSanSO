@@ -29,17 +29,13 @@ Happy to meet you behind the screen.
 よろしくお願いします。  
 
 
-***###想和我聊天？/Contact Me/連絡先***
+***想和我聊天？/Contact Me/連絡先***
 
-> Twitter:[@hakasesanso_nya](https://twitter.com/hakasesanso_nya)
-
-> Mastodon:[@hakasesanso@hub.mtf.party](https://hub.mtf.party/@hakasesanso)
-
-> Email:<hakasesanso@outlook.com>
-
-> QQ:1914908320
-
-> bilibili:[葉加瀬酸素](https://space.bilibili.com/390172521)
+> Twitter:[@hakasesanso_nya](https://twitter.com/hakasesanso_nya)  
+> Mastodon:[@hakasesanso@hub.mtf.party](https://hub.mtf.party/@hakasesanso)  
+> Email:<hakasesanso@outlook.com>  
+> QQ:1914908320  
+> bilibili:[葉加瀬酸素](https://space.bilibili.com/390172521)  
 
 
 <!---
