@@ -13,7 +13,8 @@ I am a 15 year old high school girl who is currently learning how to code in Pyt
 
 [^Tip]:Due to academic pressure and family reasons, I was not able to spend much time on programming.
 
-A Transgender🏳️‍🌈🏳️‍⚧️.Like anime, manga, light novels and games.You can talk to me with Chinese or English,and I'm still learning Japanese.  
+A Transgender🏳️‍🌈🏳️‍⚧️.  
+Like anime, manga, light novels and games.You can talk to me with Chinese or English,and I'm still learning Japanese.    
 Hope to meet a lot of friends here.  
 Happy to meet you behind the screen.  
 
