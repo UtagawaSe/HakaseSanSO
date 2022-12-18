@@ -32,7 +32,7 @@ Happy to meet you behind the screen.
 
 ***想和我聊天？/Contact Me/連絡先***
 ------------------------------------
-> Twitter:[@hakasesanso_nya](https://twitter.com/hakasesanso_nya)  
+> Twitter:[@nekosanso](https://twitter.com/nekosanso)  
 > Mastodon:[@hakasesanso@hub.mtf.party](https://hub.mtf.party/@hakasesanso)  
 > Email:<hakasesanso@outlook.com>  
 > QQ:1914908320  
