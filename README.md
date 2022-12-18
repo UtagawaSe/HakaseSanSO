@@ -37,6 +37,7 @@ Happy to meet you behind the screen.
 > Email:<hakasesanso@outlook.com>  
 > QQ:1914908320  
 > bilibili:[葉加瀬酸素](https://space.bilibili.com/390172521)  
+> Steam:[葉加瀬　酸素](https://steamcommunity.com/profiles/76561199028333693/)   ~~大家一起变好玩~~  
 
 
 <!---
