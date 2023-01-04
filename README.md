@@ -32,8 +32,8 @@ Happy to meet you behind the screen.
 
 ***想和我聊天？/Contact Me/連絡先***
 ------------------------------------
-> ～～Twitter:[@nekosanso](https://twitter.com/nekosanso)～～  
-> ～～Mastodon:[@hakasesanso@hub.mtf.party](https://hub.mtf.party/@hakasesanso)～～  
+> Twitter:[@nekosanso](https://twitter.com/nekosanso)  
+> Mastodon:[@hakasesanso@hub.mtf.party](https://hub.mtf.party/@hakasesanso)  
 > Email:<hakasesanso@outlook.com>  
 > QQ:1914908320  
 > bilibili:[葉加瀬酸素](https://space.bilibili.com/390172521)  
