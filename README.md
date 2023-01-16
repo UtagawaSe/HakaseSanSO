@@ -32,12 +32,10 @@ Happy to meet you behind the screen.
 
 ***想和我聊天？/Contact Me/連絡先***
 ------------------------------------
-> Twitter:[@nekosanso](https://twitter.com/nekosanso)  
-> Mastodon:[@hakasesanso@hub.mtf.party](https://hub.mtf.party/@hakasesanso)  
-> Email:<hakasesanso@outlook.com>  
-> QQ:1914908320  
+> Twitter:[@nekosanso](https://twitter.com/nekosanso)   
+> Email:<UtagawaTrauma@outlook.com>  
 > bilibili:[葉加瀬酸素](https://space.bilibili.com/390172521)  
-> Steam:[葉加瀬　酸素](https://steamcommunity.com/profiles/76561199028333693/)   ~~大家一起变好玩~~  
+> Steam:[歌川　瀬](https://steamcommunity.com/profiles/76561199028333693/)   ~~大家一起变好玩~~  
 
 
 <!---
